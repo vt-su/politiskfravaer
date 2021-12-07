@@ -1,0 +1,2 @@
+# politiskfravaer
+Politisk fravær
